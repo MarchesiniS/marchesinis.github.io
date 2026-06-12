@@ -106,9 +106,10 @@ A complete academic CV is available here:
 
 ## Contact
 
-**Simona Marchesini**
+📧 Email: [s.marchesini@alteritas.it](mailto:s.marchesini@alteritas.it)
 
-Founder and Scientific Director  
-Alteritas – Interaction among Peoples
+🌐 Alteritas – Interazione tra i popoli  
+
+https://alteritas.it
 
 Verona, Italy
