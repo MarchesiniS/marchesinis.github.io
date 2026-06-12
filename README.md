@@ -60,6 +60,8 @@ Research project on ancient languages, epigraphy and cultural heritage.
 
 Role: Scientific Coordinator
 
+Project website: [CORRIGE](https://selecteplus.eu)
+
 ---
 
 ### AELAW (2015–2018)
