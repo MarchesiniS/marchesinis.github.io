@@ -4,7 +4,6 @@
 
 Historical Linguist | Founder and Scientific Director of Alteritas
 
----
 
 ## About
 
