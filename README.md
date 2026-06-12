@@ -4,7 +4,7 @@ Historical Linguist | Founder and Scientific Director of Alteritas
 
 Verona, Italy
 
-<img src="IMG_6006.jpg" width="250">
+<img src="IMG_6006.jpg" width="180">
 
 ---
 
