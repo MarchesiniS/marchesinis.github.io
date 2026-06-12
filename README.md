@@ -1,6 +1,6 @@
 # Simona Marchesini
 
-Historical Linguist | Founder and Scientific Director of Alteritas
+Historical Linguist | Founder and Scientific Cordinator of Alteritas
 
 Verona, Italy
 
