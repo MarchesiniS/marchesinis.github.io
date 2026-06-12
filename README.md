@@ -89,6 +89,12 @@ A complete list of publications is available in my CV.
 
 ---
 
+## Curriculum Vitae
+
+A complete academic CV is available here:
+
+📄 [Download CV (PDF)](Simona_Marchesini_CV.pdf)
+
 ## Profiles
 
 - ORCID
