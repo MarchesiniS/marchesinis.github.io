@@ -1,7 +1,7 @@
 # Simona Marchesini
 
 <p align="center">
-  <img src="simona-marchesini.jpg" width="220">
+  <img src="IMG_6006.jpg" width="220">
 </p>
 
 Historical Linguist | Founder and Scientific Director of Alteritas
