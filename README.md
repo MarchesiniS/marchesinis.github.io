@@ -9,10 +9,6 @@ Verona, Italy
 ---
 
 ## About
-Historical Linguist | Founder and Scientific Director of Alteritas
-
-
-## About
 
 I am a historical linguist specialised in the fragmentary languages of pre-Roman Italy, ancient writing systems, epigraphy, cultural interaction and historical anthropology.
 
