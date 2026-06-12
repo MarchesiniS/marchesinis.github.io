@@ -93,7 +93,7 @@ A complete list of publications is available in my CV.
 
 A complete academic CV is available here:
 
-📄 [Download CV (PDF)](Simona_Marchesini_CV.pdf)
+📄 [Download CV (PDF)](Simona_Marchesini_cv.pdf)
 
 ## Profiles
 
