@@ -100,7 +100,7 @@ A complete academic CV is available here:
 - [ORCID](https://orcid.org/0000-0003-1384-2912)
 - [Google Scholar](https://scholar.google.com/citations?hl=it&user=rr1GGmwAAAAJ)
 - [Academia.edu](https://independent.academia.edu/SimonaMarchesini)
-- [RESEARCH GATE] (https://www.researchgate.net/profile/Simona-Marchesini?ev=hdr_xprf)
+- [researchgate.net] (https://www.researchgate.net/profile/Simona-Marchesini?ev=hdr_xprf)
 
 ---
 
