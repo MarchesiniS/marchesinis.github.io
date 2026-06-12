@@ -1,7 +1,14 @@
 # Simona Marchesini
 
-<img src="IMG_6006.jpg" width="220" align="left" hspace="20">
+Historical Linguist | Founder and Scientific Director of Alteritas
 
+Verona, Italy
+
+<img src="IMG_6006.jpg" width="250">
+
+---
+
+## About
 Historical Linguist | Founder and Scientific Director of Alteritas
 
 
