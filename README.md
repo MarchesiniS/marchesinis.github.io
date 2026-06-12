@@ -60,7 +60,7 @@ Research project on ancient languages, epigraphy and cultural heritage.
 
 Role: Scientific Coordinator
 
-Project website: [CORRIGE](https://selecteplus.eu)
+Project website: [SELECT](https://selecteplus.eu)
 
 ---
 
